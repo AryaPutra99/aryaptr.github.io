@@ -1,1 +1,0 @@
-# aryaptr.github.io
